@@ -12,7 +12,10 @@ These tools might be in the form of protocols, to tune in and out, reflections o
 
 ---
 
+The loss of fantasy: "The one sided conservative coverage of certain important events and apparently less important facts leads to a one-sided public opinion. The conjunction of man with the overload of information, accelerated by modern technological media strategies, including all the apparent pluralistic duality between regular and alternative news, leads to an inevitable noise in which most man can only attend to contentment for themselves and their immediate environment through the benefits of financial security and status, and therefore can not afford to oppose the status quo. And without this resistance man automatically maintains, subscribes, proclaims and fools themselves into living delusions. When living in delusions, man can not tell the difference between what is real and what is fantasy." 
 
-The hyperreal and the fiction of the human reality matrix opposed to historical facts, scientific evidence and the real experience.
+Oddsized - Carl P. Müller 2018
 
-Plato discussed the 'ideal forms' of which our perception of reality was an approximation. In hyperreality, it is assumed that our approaches become detached from ideal forms, leaving our perceptions of reality based on other approaches, without the ability to restore the original true form. A multitude of dogmas stem from corruption in science and philosophy, which affect psychology, economics, and culture. On a psychological level, individuals are forced to conform to lies and to deny themselves until their authenticity becomes irrelevant, their individuality becomes annoying and the truth no longer has a voice. The most important notice about our Hyper-reality is the possibility of losing sight of the horizon of reality in a world intertwined with so many signs that only refer to concepts anchored in a virtual world and offered to us 24/7 in real time.
+---
+
+

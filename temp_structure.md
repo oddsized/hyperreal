@@ -1,9 +1,14 @@
+The topic of hyperreality is a fenomenon discussed in literature throughout history in different benamings. In the 21ste century the importance of continious reflection on the topics of hyperreality, simulacra, false believe and mindcontrol can not be emphasized enough concerning the fast growing global capitalist technocracy in a future technological singularity.
 
+This text is aimed to propose a working structure and to create tools that can help individuals, groups and organisations to establish or re-invent their trajectatory in to the future with respect to the natural human abbilities.
+
+These tools might be in the form of protocols, to tune in and out, reflections on discussions, to broader the horizon of mind, and meditation practices, to heal and re-connect.
+
+- sense of reality and awarness
 
 - the use and exploit of innovation 
 
 - politics, capitalism, mind and technocracy
-
 
 ---
 

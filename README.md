@@ -7,7 +7,7 @@ Media has always been used as a tool to influence perceptions and behaviors of t
 
 #### General Observations
 
-We all have acces to documented history, scientific research, recorded individual experiences and shouls be able to be aware of the underlying dogmas in society that crush our common sense to step up and consider a multifaceted opinion and gain a deeper understanding, as opposed to the superficial popular quasi-scientific worldview presented by news agencies, entertainment industries and government institutions. 
+We all have acces to documented history, scientific research, recorded individual experiences and should be able to be aware of the underlying dogmas in society that crush our common sense. Events like 911 and recent Covid-19 should alert all of us to step up and consider a multifaceted opinion and gain a deeper understanding, as opposed to the superficial popular quasi-scientific worldview presented by news agencies, entertainment industries and government institutions. 
 
 Which information deliberately wil not be disclosed and how the apparent pluralistic duality between regular and alternative news deliberately produces more noise and only leads to less understanding of the matter through disorientation and distraction.
 
